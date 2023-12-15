@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am Azizbek Adkhamov <br>I am 18 years old <br>I study at It Park Univeristy and Currently second course
+I am Azizbek Adkhamov <br>I am 18 years old <br>I study at It Park Univeristy and Currently second year student
 
 
 ## 🌐 Socials:
